@@ -1,5 +1,5 @@
 Lista de participantes:
-Alexander Ureta - 30 años - Lanus oeste , Buenos Aires
-Liliana Elizabeth Almirón - 32 años - Tigre, Buenos Aires
+Alexander Ureta 
+Liliana Elizabeth Almirón
 Alejandro Vera
 Diego Isray
