@@ -1,5 +1,5 @@
 Lista de participantes:
-Alexander Ureta
+Alexander Ureta - 30 años - Lanus Oeste , Buenos aires
 Liliana Elizabeth Almirón
 Alejandro Vera
 Diego Isray
